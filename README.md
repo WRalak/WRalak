@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @WRalak
   
-- 🌱 I’m currently learning Information Systems 
+- 🌱 I’m  Information Systems graduate
 - 💞️ I’m looking to collaborate on everything 
 - 📫 How to reach me ...wallaceralak@gmail.com
 
